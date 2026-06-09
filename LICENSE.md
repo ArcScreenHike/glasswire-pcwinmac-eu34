@@ -1,4 +1,4 @@
-# 
+# Oficial GlassWire extensões para Mac OS | Atualizado GlassWire extensões para PC Windows. Com política de não registro e proteção de rede — otimizado para máximo desempenho em cada plataforma.
 
 
 
